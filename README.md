@@ -1,2 +1,4 @@
 # GorrilaTag-Mod-Dumps
-Posting here when im bored
+
+
+Just like the Cool " Vrchat mod devs", Im now Just messing with "GT Mod Devs" - There all just pasters in the end
